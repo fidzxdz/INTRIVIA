@@ -8,3 +8,7 @@ Pesan Kesan seama rangakian INTRIVIA adalah semua rangkaiannya sanagt seru dan m
 
 ## Pesan Kesan Cluster 3 sejauh ini
 pesan kesan saya kepada cluster 3 ini sangat seru dan semua teman teman sama sama merangkul dan membarengi semua kegiatan atau semua rangkaian INTRIVIA hinggas saat ini
+
+
+## Harapan Selama Perkuliah
+Harapan saya selama peruliahan ini berlanjut adalah dapat lulus tepat waktu dan menadapatkan ipk tinggi, dan selama perkuliahan harapan sayajuga bisa memiliki relasi yang cukup bagus, dapat merangkul teman temannya, dan diperlancar dalam perkuliahannya 
